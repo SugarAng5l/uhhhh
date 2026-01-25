@@ -12,6 +12,8 @@ Rpc cookie] *licks ear sensually*
 
 rotten milk. don't drink it.]I tie you up. I take your clothes off. I take a candle and a blade. I slowly drip wax on your naked skin.
 
+caprisun 😝] youre pregnant
+
 HELP
 
 ![deers so us omg lick](https://github.com/user-attachments/assets/a73062a7-46c8-4791-be30-1f34a00e1d44)
