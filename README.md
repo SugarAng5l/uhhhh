@@ -16,6 +16,7 @@ caprisun 😝] youre pregnant
 
  01:26["May doubt consume you." C+h] whispers: Get gay soon🥹
 
+22:48[Jax || TADC [C+H]] whispers: HES SLAPPING GAYATSS
  
 HELP
 
