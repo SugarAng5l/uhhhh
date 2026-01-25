@@ -12,6 +12,8 @@ Rpc cookie] *licks ear sensually*
 
 rotten milk. don't drink it.]I tie you up. I take your clothes off. I take a candle and a blade. I slowly drip wax on your naked skin.
 
+22:58[Jax || TADC [C+H]] whispers: i prefer seeing them kissing
+
 caprisun 😝] youre pregnant
 
 22:58[Elder faerie] thinks: Sandwich me
