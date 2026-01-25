@@ -16,6 +16,8 @@ rotten milk. don't drink it.]I tie you up. I take your clothes off. I take a can
 
 caprisun 😝] youre pregnant
 
+[ orange trump ] gives you a kidney
+
 22:58[Elder faerie] thinks: Sandwich me
 
 [My shaylaa] I ******* MYSTIC FLOUR WOOF WOOF WOOF BARK BARK BARK PURRS MREOW MEOW GRRR AWOOOOOOOOOOOOOOO
