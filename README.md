@@ -10,6 +10,8 @@ Rpc cookie] *licks ear sensually*
 
 [Elder faerie] thinks: he likes it when I walk around naked, should I do it more often?
 
+[willy <33 (CRK)] thinks: *spreads my queer roots*
+
 rotten milk. don't drink it.]I tie you up. I take your clothes off. I take a candle and a blade. I slowly drip wax on your naked skin.
 
 22:58[Jax || TADC [C+H]] whispers: i prefer seeing them kissing
