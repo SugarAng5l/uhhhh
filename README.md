@@ -10,6 +10,8 @@
 
 [Elder faerie] thinks: COME OVER HERE AND KISS MY ON MY HOT MOUTH. KM FEELING ROMANTICAL
 
+Elder faerie] thinks: I FEEL GAY IN THE 1950S WAY!!!
+
 Rpc cookie] *licks ear sensually*
 
 19:46[--✦ 🎭 -- 薄ら氷心中 👑 - 7] help i made someone from france ragequit chess
