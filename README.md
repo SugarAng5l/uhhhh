@@ -16,7 +16,13 @@ Rpc cookie] *licks ear sensually*
 
 19:46[--✦ 🎭 -- 薄ら氷心中 👑 - 7] help i made someone from france ragequit chess
 
+07:14 PM[Rotten milk cookie] Scratches bumhole
+
 [Elder faerie] thinks: he likes it when I walk around naked, should I do it more often?
+
+19:52[--✦ 🎭 -- 薄ら氷心中 👑 - 7] i love drawing all the kids who annoy me in school as pregnant femboy furries
+
+["May doubt consume you." C+h] *holds sages toes with my toes*
 
 [willy <33 (CRK)] thinks: *spreads my queer roots*
 
