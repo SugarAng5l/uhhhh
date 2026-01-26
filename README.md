@@ -21,6 +21,10 @@ rotten milk. don't drink it.]I tie you up. I take your clothes off. I take a can
 
 22:58[Jax || TADC [C+H]] whispers: i prefer seeing them kissing
 
+
+19:22[nebula, sys] He has a fixation on pregnancy
+
+
 caprisun 😝] youre pregnant
 
 [ orange trump ] gives you a kidney
