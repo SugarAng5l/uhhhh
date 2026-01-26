@@ -16,6 +16,8 @@ Rpc cookie] *licks ear sensually*
 
 19:46[--✦ 🎭 -- 薄ら氷心中 👑 - 7] help i made someone from france ragequit chess
 
+19:57[--✦ 🎭 -- 薄ら氷心中 👑 - 7] tell em that im drawing a 20ft tall beatboxing spider pregnant
+
 07:14 PM[Rotten milk cookie] Scratches bumhole
 
 [Elder faerie] thinks: he likes it when I walk around naked, should I do it more often?
