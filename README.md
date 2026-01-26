@@ -27,6 +27,8 @@ caprisun 😝] youre pregnant
 
 22:58[Elder faerie] thinks: Sandwich me
 
+19:20[nebula, sys] Today i had to tell clysm foetus is spelled like that and not fetus
+
 19:13[sisalt] thinks: Then let's get engaged
 
 [My shaylaa] I ******* MYSTIC FLOUR WOOF WOOF WOOF BARK BARK BARK PURRS MREOW MEOW GRRR AWOOOOOOOOOOOOOOO
