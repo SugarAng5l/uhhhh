@@ -17,6 +17,8 @@ Rpc cookie] *licks ear sensually*
 
 [willy <33 (CRK)] thinks: *spreads my queer roots*
 
+[🔥] "We are Charlie Kirk !!" W2J for Charlie Kirk rp ! /srs [🔥]
+
 rotten milk. don't drink it.]I tie you up. I take your clothes off. I take a candle and a blade. I slowly drip wax on your naked skin.
 
 22:58[Jax || TADC [C+H]] whispers: i prefer seeing them kissing
