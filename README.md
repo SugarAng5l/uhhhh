@@ -57,6 +57,9 @@ caprisun 😝] youre pregnant
 22:48[Jax || TADC [C+H]] whispers: HES SLAPPING GAYATSS
 
 22:55[Elder faerie] thinks: I had diarrhjjhhea again
+
+
+00:16[#8"the truth shall PREVAIL!"] Why r u crying did u hit your toe
  
 HELP
 
