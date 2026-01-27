@@ -18,6 +18,8 @@ Rpc cookie] *licks ear sensually*
 
 19:57[--✦ 🎭 -- 薄ら氷心中 👑 - 7] tell em that im drawing a 20ft tall beatboxing spider pregnant
 
+17:48[And i know where to look/💙🫂] How did jack stauber go from glazing grass to heart attacks😔
+
 09:12 PM[SAGЭ || offtab] thinks: watches you fart
 
 05:30 PM[im adorable aren't i?] Grandma what's dih
