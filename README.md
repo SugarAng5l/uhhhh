@@ -12,6 +12,8 @@
 
  Elder faerie] thinks: Salt, do you know what a brr brr patapim ai toe asmr is
 
+ 22:57[Two (TPOT)] W toe
+
 Elder faerie] thinks: I FEEL GAY IN THE 1950S WAY!!!
 
 21:05[cotton cookie !! (cacaoan fit)] i thought elder faerie was gonna licknme
