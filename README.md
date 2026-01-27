@@ -12,6 +12,8 @@
 
  Elder faerie] thinks: Salt, do you know what a brr brr patapim ai toe asmr is
 
+ 23:27[queen dizzy] Rips shirt open to reveal shirt underneath that says I LOVE WOMEN!!!!!!!!!😍😍😍😍😍😍❣😍💕❣💕❣🍎💓🍎💓😍🍎🍎🌷🌷🌷🤩🌷🤩💙👑😘😘🌊🪨🌊😰💙🤑💙
+
  22:57[Two (TPOT)] W toe
 
 Elder faerie] thinks: I FEEL GAY IN THE 1950S WAY!!!
