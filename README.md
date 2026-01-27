@@ -20,6 +20,8 @@ Elder faerie] thinks: I FEEL GAY IN THE 1950S WAY!!!
 
 21:05[cotton cookie !! (cacaoan fit)] i thought elder faerie was gonna licknme
 
+23:28[queen dizzy] "your message is too long" ill fart on you
+
 Rpc cookie] *licks ear sensually*
 
 19:46[--✦ 🎭 -- 薄ら氷心中 👑 - 7] help i made someone from france ragequit chess
