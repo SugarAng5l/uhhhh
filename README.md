@@ -10,6 +10,8 @@
 
 [Elder faerie] thinks: COME OVER HERE AND KISS MY ON MY HOT MOUTH. KM FEELING ROMANTICAL
 
+ Elder faerie] thinks: Salt, do you know what a brr brr patapim ai toe asmr is
+
 Elder faerie] thinks: I FEEL GAY IN THE 1950S WAY!!!
 
 21:05[cotton cookie !! (cacaoan fit)] i thought elder faerie was gonna licknme
