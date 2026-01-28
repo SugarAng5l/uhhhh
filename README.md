@@ -14,6 +14,8 @@ Pony #3] fanta femininst: reafing yaoi is so feminism core like imagine reading 
 
  Elder faerie] thinks: Salt, do you know what a brr brr patapim ai toe asmr is
 
+ 14:56[the radiant queen always wins!] i should have left you in the orphanage's doorstep l=years ago
+
  23:27[queen dizzy] Rips shirt open to reveal shirt underneath that says I LOVE WOMEN!!!!!!!!!😍😍😍😍😍😍❣😍💕❣💕❣🍎💓🍎💓😍🍎🍎🌷🌷🌷🤩🌷🤩💙👑😘😘🌊🪨🌊😰💙🤑💙
 
  22:57[Two (TPOT)] W toe
