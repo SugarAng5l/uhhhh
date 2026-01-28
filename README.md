@@ -10,6 +10,8 @@
 
 [Elder faerie] thinks: COME OVER HERE AND KISS MY ON MY HOT MOUTH. KM FEELING ROMANTICAL
 
+Pony #3] fanta femininst: reafing yaoi is so feminism core like imagine reading men just to keep women in check
+
  Elder faerie] thinks: Salt, do you know what a brr brr patapim ai toe asmr is
 
  23:27[queen dizzy] Rips shirt open to reveal shirt underneath that says I LOVE WOMEN!!!!!!!!!😍😍😍😍😍😍❣😍💕❣💕❣🍎💓🍎💓😍🍎🍎🌷🌷🌷🤩🌷🤩💙👑😘😘🌊🪨🌊😰💙🤑💙
