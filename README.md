@@ -16,6 +16,8 @@
 
  22:57[Two (TPOT)] W toe
 
+ 11:20[Wise Ayin] The racism is running through my vein
+
 Elder faerie] thinks: I FEEL GAY IN THE 1950S WAY!!!
 
 21:05[cotton cookie !! (cacaoan fit)] i thought elder faerie was gonna licknme
