@@ -12,6 +12,8 @@
 
 Pony #3] fanta femininst: reafing yaoi is so feminism core like imagine reading men just to keep women in check
 
+15:42[PAPER PUPPET GC!✨[CH 2 EP 10]] i have my germs on it
+
 15:00[Vanilla | afk] whispers: 07:59 PM[Manager milk cookie] Smc can get himself preg
 
  Elder faerie] thinks: Salt, do you know what a brr brr patapim ai toe asmr is
