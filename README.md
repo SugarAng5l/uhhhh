@@ -10,6 +10,10 @@
 
 [Elder faerie] thinks: COME OVER HERE AND KISS MY ON MY HOT MOUTH. KM FEELING ROMANTICAL
 
+[Tanzanite!!~// INC/C+H] i will lock you in the attic and we will roleplay with our toes
+
+[GŌD (HH fanon design) DNC] I need older women to top me
+
 Pony #3] fanta femininst: reafing yaoi is so feminism core like imagine reading men just to keep women in check
 
 15:46[afk free c+h] shadowvanilla is femboy fork or angst no in between
