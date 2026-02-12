@@ -14,6 +14,8 @@
 
 [Tanzanite!!~// INC/C+H] i will lock you in the attic and we will roleplay with our toes
 
+[Elder faerie] thinks: givr me your nectar lily
+
 22:47[smc rmk] thinks: wanna furry rp?
 
 [not so hollyberry] everything… shall return to embrio
