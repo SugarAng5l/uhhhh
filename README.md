@@ -14,6 +14,8 @@
 
 [Tanzanite!!~// INC/C+H] i will lock you in the attic and we will roleplay with our toes
 
+[mental cookie] thinks: Let us spend some time... tonget.
+
 [Elder faerie] thinks: givr me your nectar lily
 
 22:47[smc rmk] thinks: wanna furry rp?
