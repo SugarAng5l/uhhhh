@@ -14,6 +14,12 @@
 
 [Tanzanite!!~// INC/C+H] i will lock you in the attic and we will roleplay with our toes
 
+[me when the devil eats me 🤣] thinks: tonget
+
+[mental cookie] thinks: Bake rizz cakes together
+
+
+
 [mental cookie] thinks: Let us spend some time... tonget.
 
 [Elder faerie] thinks: givr me your nectar lily
