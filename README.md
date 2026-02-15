@@ -16,6 +16,8 @@
 
 [me when the devil eats me 🤣] thinks: tonget
 
+[*****] Whimpers like an injured puppy
+
 [mental cookie] thinks: Bake rizz cakes together
 
 
