@@ -16,6 +16,8 @@
 
 ["CURSE YOU!" C+h w2i] I will put balding shampoo on ur eyebrows while ur sleeping❤
 
+[chess piece eater😂✌] thinks: Wrinkly dih ewwwwww ew ewwww
+
 [me when the devil eats me 🤣] thinks: tonget
 
 [*****] Whimpers like an injured puppy
