@@ -14,6 +14,8 @@
 
 [Tanzanite!!~// INC/C+H] i will lock you in the attic and we will roleplay with our toes
 
+["CURSE YOU!" C+h w2i] I will put balding shampoo on ur eyebrows while ur sleeping❤
+
 [me when the devil eats me 🤣] thinks: tonget
 
 [*****] Whimpers like an injured puppy
