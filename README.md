@@ -14,6 +14,8 @@
 
 [Tanzanite!!~// INC/C+H] i will lock you in the attic and we will roleplay with our toes
 
+-♦NO i-im not a tsundere! Hmp!] Bahcene isicem
+
 ["CURSE YOU!" C+h w2i] I will put balding shampoo on ur eyebrows while ur sleeping❤
 
 [chess piece eater😂✌] thinks: Wrinkly dih ewwwwww ew ewwww
