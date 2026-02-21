@@ -14,6 +14,8 @@
 
 [Tanzanite!!~// INC/C+H] i will lock you in the attic and we will roleplay with our toes
 
+[dies bc of periodt cramps] Mommy I'm 8 weeks old now I'm the size of a raspberry around 14milimeters long I got tiny webbed fingers and toes
+
 -♦NO i-im not a tsundere! Hmp!] Bahcene isicem
 
 ["CURSE YOU!" C+h w2i] I will put balding shampoo on ur eyebrows while ur sleeping❤
