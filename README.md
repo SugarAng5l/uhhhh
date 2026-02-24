@@ -16,6 +16,8 @@
 
 [gyaahh of the crumbled] thinks: Granny is telling her stories
 
+[oh how brave that chicken] thinks: do your matings dance somewhere else pls
+
 [dies bc of periodt cramps] Mommy I'm 8 weeks old now I'm the size of a raspberry around 14milimeters long I got tiny webbed fingers and toes
 
 -♦NO i-im not a tsundere! Hmp!] Bahcene isicem
