@@ -10,6 +10,8 @@
 
 [Elder faerie] thinks: COME OVER HERE AND KISS MY ON MY HOT MOUTH. KM FEELING ROMANTICAL
 
+[killer fish from san diego] gives cpr*
+
 22:44[inhaled febreeze] yes girl open them cakes🙌
 
 [Tanzanite!!~// INC/C+H] i will lock you in the attic and we will roleplay with our toes
