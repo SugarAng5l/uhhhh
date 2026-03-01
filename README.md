@@ -28,6 +28,8 @@
 
 ["CURSE YOU!" C+h w2i] I will put balding shampoo on ur eyebrows while ur sleeping❤
 
+[zuko] whispers: my cousin has a crush on shrimp
+
 [Me if I was normal and healthy] Throws you on a volcano in a romantic way
 
 [chess piece eater😂✌] thinks: Wrinkly dih ewwwwww ew ewwww
