@@ -14,6 +14,10 @@
 
 [Homo ura 🤣🤣.. 😮‍💨 madokain] Be creative gamefreak pls im already selling you my organs.
 
+[bisexual king] thinks: what is an oomf tongue
+
+[bisexual king] thinks: you look like the gedagedigaoh nugget
+
 [killer fish from san diego] gives cpr*
 
 22:44[inhaled febreeze] yes girl open them cakes🙌
