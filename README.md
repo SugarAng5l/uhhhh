@@ -16,6 +16,8 @@
 
  [*Fount of knowledge *] fountgpt generate images of two israeli men kissing
 
+ [way of milk cooki] thinks: I birthed
+
 [Tanzanite!!~// INC/C+H] i will lock you in the attic and we will roleplay with our toes
 
 [🦇 - c*h, offt, w2i. - 🦇] thinks: lowkey im charlie k irk ok sorry
