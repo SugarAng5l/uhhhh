@@ -18,6 +18,8 @@
 
  [way of milk cooki] thinks: I birthed
 
+ ["It's dark.." //CRK/CROB] WHEN are you dying old FOSSIL
+
 [Tanzanite!!~// INC/C+H] i will lock you in the attic and we will roleplay with our toes
 
 [🦇 - c*h, offt, w2i. - 🦇] thinks: lowkey im charlie k irk ok sorry
