@@ -14,7 +14,7 @@
 
 [Homo ura 🤣🤣.. 😮‍💨 madokain] Be creative gamefreak pls im already selling you my organs.
 
-bisexual king] woah you and your oomf tonge
+To [bisexual king] woah you and your oomf tonge
 
 [bisexual king] thinks: what is an oomf tongue
 
