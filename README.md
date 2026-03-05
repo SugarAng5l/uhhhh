@@ -20,6 +20,8 @@
 
  ["It's dark.." //CRK/CROB] WHEN are you dying old FOSSIL
 
+ [i love thi guy] i thought you had a blue wedding dress on i got shocked for a sec
+
 [Tanzanite!!~// INC/C+H] i will lock you in the attic and we will roleplay with our toes
 
 [🦇 - c*h, offt, w2i. - 🦇] thinks: lowkey im charlie k irk ok sorry
