@@ -12,6 +12,8 @@
 
 [chuchel] you look like a burnt potato chip with a middle finger beanie on your head sorry
 
+[Homo ura 🤣🤣.. 😮‍💨 madokain] Be creative gamefreak pls im already selling you my organs.
+
 [killer fish from san diego] gives cpr*
 
 22:44[inhaled febreeze] yes girl open them cakes🙌
