@@ -10,6 +10,8 @@
 
 [Elder faerie] thinks: COME OVER HERE AND KISS MY ON MY HOT MOUTH. KM FEELING ROMANTICAL
 
+[chuchel] you look like a burnt potato chip with a middle finger beanie on your head sorry
+
 [killer fish from san diego] gives cpr*
 
 22:44[inhaled febreeze] yes girl open them cakes🙌
