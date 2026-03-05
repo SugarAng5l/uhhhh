@@ -18,6 +18,8 @@
 
 [Tanzanite!!~// INC/C+H] i will lock you in the attic and we will roleplay with our toes
 
+[🦇 - c*h, offt, w2i. - 🦇] thinks: lowkey im charlie k irk ok sorry
+
 [《☆..I already know a way....》] whispers: I LWOK GOT A CRUSH ON UUUUU PROTOTYPE~
 
 [gyaahh of the crumbled] thinks: Granny is telling her stories
