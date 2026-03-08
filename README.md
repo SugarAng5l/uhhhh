@@ -16,6 +16,8 @@
 
 [Homo ura 🤣🤣.. 😮‍💨 madokain] Be creative gamefreak pls im already selling you my organs.
 
+Moonflower Faerie (c+h)] So ur an ostrich then
+
 [wac ok..?] thinks: of yerim otuz bes bucuk ayak
 
 To [bisexual king] woah you and your oomf tonge
