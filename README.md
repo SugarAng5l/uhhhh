@@ -12,6 +12,8 @@
 
 [chuchel] you look like a burnt potato chip with a middle finger beanie on your head sorry
 
+[ordinary human magician ☆] ill lick it out with my teeth and french kiss you until you're breathless
+
 [Ok , hi.] Shivers in my firey balls
 
 [Homo ura 🤣🤣.. 😮‍💨 madokain] Be creative gamefreak pls im already selling you my organs.
