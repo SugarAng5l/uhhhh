@@ -14,6 +14,8 @@
 
 [Homo ura 🤣🤣.. 😮‍💨 madokain] Be creative gamefreak pls im already selling you my organs.
 
+[wac ok..?] thinks: of yerim otuz bes bucuk ayak
+
 To [bisexual king] woah you and your oomf tonge
 
 [bisexual king] thinks: what is an oomf tongue
