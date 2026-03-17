@@ -12,6 +12,12 @@
 
 [chuchel] you look like a burnt potato chip with a middle finger beanie on your head sorry
 
+[Lazy middle aged hot yaoi man] Existing is gay
+
+[❤🤍D. choco?🤍❤] thinks: shadowmilk x ekrem
+
+[♠~The False Prophet Of Truth] EKREM İMAMOĞLU 💥💥💥💥💥💥💥💥💥💥💥💥💥💥💥💥💥💥💥💥💥💥💥💥💥💥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥 HERSEY ÇOK GUZEL OLACAK💥🔥💥🔥💥💥💥🔥💥🔥💥
+
 [ordinary human magician ☆] ill lick it out with my teeth and french kiss you until you're breathless
 
 ['Jealousy,Jealousy'•Esc💖✨] Japonyaya gidip maid farelerde yaşlı amca dolandircaz
