@@ -14,6 +14,8 @@
 
 [ordinary human magician ☆] ill lick it out with my teeth and french kiss you until you're breathless
 
+['Jealousy,Jealousy'•Esc💖✨] Japonyaya gidip maid farelerde yaşlı amca dolandircaz
+
 [Ok , hi.] Shivers in my firey balls
 
 [Homo ura 🤣🤣.. 😮‍💨 madokain] Be creative gamefreak pls im already selling you my organs.
