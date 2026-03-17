@@ -16,6 +16,10 @@
 
 [Lazy middle aged hot yaoi man] Existing is gay
 
+[❄] Stop whimpering to me that you want to makeout. Idont want to
+
+[❄] whispers: i miss you lets make out
+
 [❤🤍D. choco?🤍❤] thinks: shadowmilk x ekrem
 
 [♠~The False Prophet Of Truth] EKREM İMAMOĞLU 💥💥💥💥💥💥💥💥💥💥💥💥💥💥💥💥💥💥💥💥💥💥💥💥💥💥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥 HERSEY ÇOK GUZEL OLACAK💥🔥💥🔥💥💥💥🔥💥🔥💥
