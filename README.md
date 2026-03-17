@@ -10,6 +10,8 @@
 
 [Elder faerie] thinks: COME OVER HERE AND KISS MY ON MY HOT MOUTH. KM FEELING ROMANTICAL
 
+i hate him 🙄] Twirls uhhh my chesthair
+
 [chuchel] you look like a burnt potato chip with a middle finger beanie on your head sorry
 
 [Mehmetin dolapta yatan kedisi] opuselim
