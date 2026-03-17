@@ -12,6 +12,8 @@
 
 [chuchel] you look like a burnt potato chip with a middle finger beanie on your head sorry
 
+[Mehmetin dolapta yatan kedisi] opuselim
+
 [Lazy middle aged hot yaoi man] Existing is gay
 
 [❤🤍D. choco?🤍❤] thinks: shadowmilk x ekrem
