@@ -18,6 +18,8 @@ i hate him 🙄] Twirls uhhh my chesthair
 
 [no guys im not fro forsaken] thinks: why am i scared of an adult mosquito
 
+[{ There's ily in lily }] whispers: W-whoah...ur toes r shiny!!!
+
 [Lazy middle aged hot yaoi man] Existing is gay
 
 [❄] Stop whimpering to me that you want to makeout. Idont want to
