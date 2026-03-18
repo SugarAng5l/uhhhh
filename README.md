@@ -16,6 +16,10 @@ i hate him 🙄] Twirls uhhh my chesthair
 
 cute dr coomer] i once got a post on my fyp of a rlly green chihuahua
 
+[sirius be serious rn] canim oglusumun bes koseside bana girdi
+
+[Астронавт Сириус] Yuji'nin ayak numarasi 38..?
+
 [Mehmetin dolapta yatan kedisi] opuselim
 
 [no guys im not fro forsaken] thinks: why am i scared of an adult mosquito
