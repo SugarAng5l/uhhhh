@@ -16,6 +16,8 @@ i hate him 🙄] Twirls uhhh my chesthair
 
 cute dr coomer] i once got a post on my fyp of a rlly green chihuahua
 
+Elder faerie] thinks: did you give birth
+
 [Face reveal gng. Ivan!!] parmağndaki tırnağn pigmentine kurbk
 
 [sirius be serious rn] eski law simpi konustu susun
