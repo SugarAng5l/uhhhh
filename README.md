@@ -20,6 +20,8 @@ cute dr coomer] i once got a post on my fyp of a rlly green chihuahua
 
 [sirius be serious rn] eski law simpi konustu susun
 
+[Face reveal gng. Ivan!!] Vatan,, millet,, sakso
+
 [sirius be serious rn] mervenin zencilere zaafi var
 
 sirius be serious rn] anime kiziyim ben
