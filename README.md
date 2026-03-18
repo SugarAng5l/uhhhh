@@ -14,6 +14,8 @@ i hate him 🙄] Twirls uhhh my chesthair
 
 [chuchel] you look like a burnt potato chip with a middle finger beanie on your head sorry
 
+cute dr coomer] i once got a post on my fyp of a rlly green chihuahua
+
 [Mehmetin dolapta yatan kedisi] opuselim
 
 [no guys im not fro forsaken] thinks: why am i scared of an adult mosquito
