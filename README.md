@@ -16,6 +16,12 @@ i hate him 🙄] Twirls uhhh my chesthair
 
 cute dr coomer] i once got a post on my fyp of a rlly green chihuahua
 
+[sirius be serious rn] eski law simpi konustu susun
+
+[sirius be serious rn] mervenin zencilere zaafi var
+
+sirius be serious rn] anime kiziyim ben
+
 [sirius be serious rn] canim oglusumun bes koseside bana girdi
 
 [Астронавт Сириус] Yuji'nin ayak numarasi 38..?
