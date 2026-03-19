@@ -16,6 +16,8 @@ i hate him 🙄] Twirls uhhh my chesthair
 
 cute dr coomer] i once got a post on my fyp of a rlly green chihuahua
 
+🐟] Tas hamileyse tk niye hamile
+
 [Emo💔] thinks: Why are you farting a black thick gas or is it just me /j
 
 Elder faerie] thinks: did you give birth
