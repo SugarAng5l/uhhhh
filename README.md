@@ -18,6 +18,8 @@ cute dr coomer] i once got a post on my fyp of a rlly green chihuahua
 
 🐟] Tas hamileyse tk niye hamile
 
+[feeling sick sv] i feel like i wanna exploredown there ok
+
 [NO ONE BOTHERED ME.] im just a little latino boy please..
 
 [wip] thinks: kibbles do you feel the inner racism bubbling within you
