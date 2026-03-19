@@ -16,6 +16,8 @@ i hate him 🙄] Twirls uhhh my chesthair
 
 cute dr coomer] i once got a post on my fyp of a rlly green chihuahua
 
+[Emo💔] thinks: Why are you farting a black thick gas or is it just me /j
+
 Elder faerie] thinks: did you give birth
 
 [Face reveal gng. Ivan!!] parmağndaki tırnağn pigmentine kurbk
