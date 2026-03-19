@@ -18,6 +18,10 @@ cute dr coomer] i once got a post on my fyp of a rlly green chihuahua
 
 🐟] Tas hamileyse tk niye hamile
 
+[NO ONE BOTHERED ME.] im just a little latino boy please..
+
+[wip] thinks: kibbles do you feel the inner racism bubbling within you
+
 [Emo💔] thinks: Why are you farting a black thick gas or is it just me /j
 
 Elder faerie] thinks: did you give birth
