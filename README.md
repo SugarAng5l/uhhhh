@@ -18,6 +18,8 @@ cute dr coomer] i once got a post on my fyp of a rlly green chihuahua
 
 🐟] Tas hamileyse tk niye hamile
 
+[Broski works for the union. 😿] thinks: I'll lick off your sweat.
+
 [💎, phantom bleu ,, c+h, int] jail is quite a unique place to vacation at
 
 [I pooped] thinks: My dad calls them balllickers in russian
