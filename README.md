@@ -16,6 +16,16 @@ i hate him 🙄] Twirls uhhh my chesthair
 
 cute dr coomer] i once got a post on my fyp of a rlly green chihuahua
 
+All.PlansLeadToTahiti.] thinks: My toes were shaking
+
+[All.PlansLeadToTahiti.] thinks: I'm sweating like a pig
+
+[Нуб сайбот ермак рептилия хз] thinks: Cuts off your leon
+
+ [○° Ferin [🍀]] whispers: Makesout romantically
+
+ [All.PlansLeadToTahiti.] thinks: Yo Ocelot was acting possessed to team up with snake
+
 🐟] Tas hamileyse tk niye hamile
 
 [Broski works for the union. 😿] thinks: I'll lick off your sweat.
