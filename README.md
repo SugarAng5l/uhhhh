@@ -16,6 +16,8 @@ i hate him 🙄] Twirls uhhh my chesthair
 
 cute dr coomer] i once got a post on my fyp of a rlly green chihuahua
 
+[Kept you married, huh?] thinks: Get your ass over hers
+
 All.PlansLeadToTahiti.] thinks: My toes were shaking
 
 [All.PlansLeadToTahiti.] thinks: I'm sweating like a pig
