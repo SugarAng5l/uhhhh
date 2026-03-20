@@ -20,6 +20,10 @@ cute dr coomer] i once got a post on my fyp of a rlly green chihuahua
 
 [💎, phantom bleu ,, c+h, int] jail is quite a unique place to vacation at
 
+[🌹; Crystal Rose Cookie , c*h] Im gonna ring your bell
+
+[🌹; Crystal Rose Cookie , c*h] Jiggle yo bell💔
+
 [Pope Francis] i feel like i wanna exploredown there ok
 
 [NO ONE BOTHERED ME.] im just a little latino boy please..
