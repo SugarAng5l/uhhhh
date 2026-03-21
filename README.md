@@ -18,6 +18,8 @@ cute dr coomer] i once got a post on my fyp of a rlly green chihuahua
 
 [Kept you married, huh?] thinks: Get your ass over hers
 
+[ribbir toh] im going to burp on u
+
 All.PlansLeadToTahiti.] thinks: My toes were shaking
 
 [All.PlansLeadToTahiti.] thinks: I'm sweating like a pig
