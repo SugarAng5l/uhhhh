@@ -12,6 +12,8 @@
 
 i hate him 🙄] Twirls uhhh my chesthair
 
+[🦋AU | DNC] whispers: drags my tongue acroos ur black sugar swan skin
+
 [chuchel] you look like a burnt potato chip with a middle finger beanie on your head sorry
 
 cute dr coomer] i once got a post on my fyp of a rlly green chihuahua
