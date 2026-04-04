@@ -18,6 +18,8 @@ i hate him 🙄] Twirls uhhh my chesthair
 
 cute dr coomer] i once got a post on my fyp of a rlly green chihuahua
 
+[girl why u so machine] thinks: i hope you get put in a wheelchair permanently
+
 [Kept you married, huh?] thinks: Get your ass over hers
 
 [Blue smc theory] thinks: Apartmanın kazan dairesinden mi baglanion amk
