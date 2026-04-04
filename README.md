@@ -22,6 +22,8 @@ cute dr coomer] i once got a post on my fyp of a rlly green chihuahua
 
 [Kept you married, huh?] thinks: Get your ass over hers
 
+[gentle spring blossom. fnmcost] thinks: ok petah transformed into tomato sauce
+
 [Blue smc theory] thinks: Apartmanın kazan dairesinden mi baglanion amk
 
 [My name is Hala] whispers: I admire your ahs
