@@ -28,6 +28,8 @@ Smc im gon tickl yo toes🤣🤣🤣] Timekeeper dersen surda cicek gibi kendiml
 
 [Dance of Cursed Butterfly|COST] whispers: Gotumu veririm sansımı vermem
 
+[🌹; Crystal Rose Cookie , c*h] Yemin ediyorum diyabet tip 1 70 yasındaki amcalar gibi gidecem obur dunyaya simdi
+
 [Kept you married, huh?] thinks: Get your ass over hers
 
 [gentle spring blossom. fnmcost] thinks: ok petah transformed into tomato sauce
