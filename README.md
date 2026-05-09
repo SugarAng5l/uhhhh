@@ -24,6 +24,8 @@ cute dr coomer] i once got a post on my fyp of a rlly green chihuahua
 
 Smc im gon tickl yo toes🤣🤣🤣] Timekeeper dersen surda cicek gibi kendimle ciftlesirim
 
+[🌹; Crystal Rose Cookie , c*h] XUN GECE RUYANDA BENI ANANA VERIRKEN MI GORDUN BUNE SINIR
+
 [Dance of Cursed Butterfly|COST] whispers: Gotumu veririm sansımı vermem
 
 [Kept you married, huh?] thinks: Get your ass over hers
