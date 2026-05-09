@@ -22,6 +22,10 @@ cute dr coomer] i once got a post on my fyp of a rlly green chihuahua
 
 [oh wee i lik my hors] shut up and let me burst bro
 
+Smc im gon tickl yo toes🤣🤣🤣] Timekeeper dersen surda cicek gibi kendimle ciftlesirim
+
+[Dance of Cursed Butterfly|COST] whispers: Gotumu veririm sansımı vermem
+
 [Kept you married, huh?] thinks: Get your ass over hers
 
 [gentle spring blossom. fnmcost] thinks: ok petah transformed into tomato sauce
