@@ -18,6 +18,8 @@ i hate him 🙄] Twirls uhhh my chesthair
 
 cute dr coomer] i once got a post on my fyp of a rlly green chihuahua
 
+[girl why u so machine] thinks: timelongan hot overstimulation gearplay
+
 [girl why u so machine] thinks: i hope you get put in a wheelchair permanently
 
 [oh wee i lik my hors] shut up and let me burst bro
