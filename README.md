@@ -18,6 +18,8 @@ i hate him 🙄] Twirls uhhh my chesthair
 
 cute dr coomer] i once got a post on my fyp of a rlly green chihuahua
 
+[`^butter pretzel] 1 minute in the app i was attacked by 2 man's with their dih pictures
+
 [girl why u so machine] thinks: timelongan hot overstimulation gearplay
 
 [girl why u so machine] thinks: i hope you get put in a wheelchair permanently
